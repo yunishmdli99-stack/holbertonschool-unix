@@ -1,1 +1,0 @@
-Notch created the Minecraft
